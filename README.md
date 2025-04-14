@@ -1,2 +1,3 @@
 # inform-tica-atividades
-![Uploading Captura de tela 2025-04-14 202130.png…]()
+![Captura de tela 2025-04-14 202130](https://github.com/user-attachments/assets/bd772ad9-1af6-4d73-9ccf-4e6bc4b11036)
+
